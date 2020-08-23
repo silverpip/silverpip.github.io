@@ -1,4 +1,10 @@
- We are Narnia nerds (the books only, please; read properly in their original order, thank you very much.) Each one of our children carries the mark of some character from the Chronicles, either in their first or middle names. 
+---
+title: Narnia Nerds
+date: 2011-07-11 22:45:42
+category: blog
+tag: vintage
+---
+         We are Narnia nerds (the books only, please; read properly in their original order, thank you very much.) Each one of our children carries the mark of some character from the Chronicles, either in their first or middle names. 
 
  You would think our children could recite the stories from memory by now, but alas! A funny thing happened one day that stopped Narnia zeal before it could really get started. 
 

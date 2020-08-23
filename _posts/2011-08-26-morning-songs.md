@@ -1,4 +1,10 @@
-_I wake in the morning early, _  
+---
+title: Morning Songs
+date: 2011-08-26 21:56:00
+category: blog
+tag: vintage
+---
+        _I wake in the morning early, _  
 _ And always the very first thing,_  
 _ I poke out my head and I sit up in bed,_  
 _ And I sing, and I sing, and I sing._  

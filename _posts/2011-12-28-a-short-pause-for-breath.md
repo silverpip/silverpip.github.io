@@ -1,4 +1,10 @@
-# The Peace of Wild Things
+---
+title: A Short Pause For Breath
+date: 2011-12-28 06:18:00
+category: blog
+tag: vintage
+---
+        # The Peace of Wild Things
 
 When despair grows in me  
 and I wake in the middle of the night at the least sound  

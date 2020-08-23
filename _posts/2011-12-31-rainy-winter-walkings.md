@@ -1,4 +1,10 @@
-Mad, lush summertime gives voice to all my varied passions. Spinning through its glowing days, I am dazzled beneath the lights and shadows of green leaves swaying, dancing overhead.
+---
+title: Rainy Winter Walkings
+date: 2011-12-31 07:24:00
+category: blog
+tag: vintage
+---
+        Mad, lush summertime gives voice to all my varied passions. Spinning through its glowing days, I am dazzled beneath the lights and shadows of green leaves swaying, dancing overhead.
 
 But the still gray horizons and sober husks of winter show me my handholds. Center my soul. Rain and mist and fog wash the landscape into clear neutrals. Columned trees raise black branches, spare even in their complexity, in a communal act of incarnate waiting.
 

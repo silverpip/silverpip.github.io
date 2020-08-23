@@ -1,4 +1,10 @@
-My first run in nine months was today, and of course I felt I might die. And not just because of the ice, which is once again all over the bike path. Sadly, that sort of thing, just like all sorts of things, requires maintenance. I retract my vote for its keepers.
+---
+title: One Retraction and One Hope
+date: 2013-01-03 09:15:00
+category: blog
+tag: vintage
+---
+        My first run in nine months was today, and of course I felt I might die. And not just because of the ice, which is once again all over the bike path. Sadly, that sort of thing, just like all sorts of things, requires maintenance. I retract my vote for its keepers.
 
 But this feeling of bursting lungs and metallic tongue, this vague unfounded worry over heart rate, and these leaden legs refusing to pick up their pace, cannot touch me as they could on my very first run of all. Because now I know they will pass in a shockingly short time and leave me once again in charge of my body. All I have to do is keep running. It is enough.
 

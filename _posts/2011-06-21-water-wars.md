@@ -1,4 +1,10 @@
- The Rule of Escalation on water wars in our family is intense, especially with two middle-school aged boys around (three, if you count Steven, which I usually do.) Everyone thinks twice about that first dousing, but once engaged, the battle will not end before a full-body drenching for everyone. 
+---
+title: Water Wars
+date: 2011-06-21 22:28:21
+category: blog
+tag: vintage
+---
+         The Rule of Escalation on water wars in our family is intense, especially with two middle-school aged boys around (three, if you count Steven, which I usually do.) Everyone thinks twice about that first dousing, but once engaged, the battle will not end before a full-body drenching for everyone. 
 
  I was inducted into this little way of life while Steven and I were still dating. Washing a car together one hot Texan day, I playfully squirted the hose at his shirt for mere moments. Soon finding myself soaked to the skin with a hose tucked down the back of my pants, standing ankle deep in a rushing river, I knew exactly what I was getting into when I agreed to marry the man. 
 

@@ -1,4 +1,10 @@
- _“Nice? It’s the _only_ thing,” said the water rat solemnly, as he leant forward for his stroke. “Believe me, my friend, there is _nothing_– absolutely nothing– half so much worth doing as simply messing about it boats. Simply messing,” he went on dreamily: “messing– about– in– boats; messing–”_ 
+---
+title: The Water Rat
+date: 2011-07-23 21:49:11
+category: blog
+tag: vintage
+---
+         _“Nice? It’s the _only_ thing,” said the water rat solemnly, as he leant forward for his stroke. “Believe me, my friend, there is _nothing_– absolutely nothing– half so much worth doing as simply messing about it boats. Simply messing,” he went on dreamily: “messing– about– in– boats; messing–”_ 
 
  _–The Wind in the Willows, Kenneth Grahame_ 
 

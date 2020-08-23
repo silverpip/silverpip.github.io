@@ -1,4 +1,10 @@
-Today was Jack’s first day of work. Ever. (He’s volunteering at our local science center.) And as I dropped him off and watched those jaunty little shoulders, so dearly familiar, grow smaller and smaller against the huge front doors until finally disappearing inside, I felt a silent wail, part maternal pride and part mother’s lament well up in my breast. But life doesn’t stop, and there were naps to be on time for.
+---
+title: Employment
+date: 2012-02-08 22:22:00
+category: blog
+tag: vintage
+---
+        Today was Jack’s first day of work. Ever. (He’s volunteering at our local science center.) And as I dropped him off and watched those jaunty little shoulders, so dearly familiar, grow smaller and smaller against the huge front doors until finally disappearing inside, I felt a silent wail, part maternal pride and part mother’s lament well up in my breast. But life doesn’t stop, and there were naps to be on time for.
 
 Driving home, listening to Charlotte’s Web, we all felt a little odd.
 

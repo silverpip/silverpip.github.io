@@ -1,4 +1,10 @@
-While Maria is busy being mortally offended by the Captain’s whistle, I am usually thinking, “That’s a _fantastic_ idea…”
+---
+title: Samba von Trapp
+date: 2012-09-24 18:00:00
+category: blog
+tag: vintage
+---
+        While Maria is busy being mortally offended by the Captain’s whistle, I am usually thinking, “That’s a _fantastic_ idea…”
 
 I treated myself to a samba whistle last week. I love it: each child has a special call.
 

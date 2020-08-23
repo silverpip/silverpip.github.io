@@ -1,4 +1,10 @@
-A few months ago, I went to the store to buy soap, and had some trouble choosing. Now, this is not strange, since too many options often fluster me, and I have been known to leave a store without any product at all rather than deal with an overwhelming number of choices. A friend of mine who lives overseas calls it “decision anxiety” and is usually immobilized in U.S. grocery stores.
+---
+title: Some thoughts on Fair Trade and Some More Poetry
+date: 2011-06-08 22:24:00
+category: blog
+tag: vintage
+---
+        A few months ago, I went to the store to buy soap, and had some trouble choosing. Now, this is not strange, since too many options often fluster me, and I have been known to leave a store without any product at all rather than deal with an overwhelming number of choices. A friend of mine who lives overseas calls it “decision anxiety” and is usually immobilized in U.S. grocery stores.
 
 But this time wasn’t my run of the mill brand confusion. My choice was between a soap I was already comfortable with and a new Fair Trade variety. For whatever reason, I finally left with the old soap in my bag. Perhaps I was feeling poor that day, or just couldn’t bear standing in the aisle any longer and grabbed at familiarity before making a run for it. I had forgotten the incident altogether.Until yesterday.
 

@@ -1,4 +1,10 @@
-Driving through a terrifying thunder storm this morning, we saw a tree   
+---
+title: Thunder and Lightning
+date: 2011-04-04 21:50:28
+category: blog
+tag: vintage
+---
+        Driving through a terrifying thunder storm this morning, we saw a tree   
 being hit by lightning. A great blue glowing ball of fire, then a   
 sudden explosion of white sparks, right outside our window for that   
 one second we were driving by. It was magnificent. It was something   

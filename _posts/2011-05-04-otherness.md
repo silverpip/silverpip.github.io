@@ -1,4 +1,10 @@
-I am shocked and humbled every time I accidentally encounter otherness. To realize right down at the very heart of things that other people are not merely an extension of myself, or the same as me, is truly surprising every time. Even a little unsettling.
+---
+title: Otherness
+date: 2011-05-04 15:00:00
+category: blog
+tag: vintage
+---
+        I am shocked and humbled every time I accidentally encounter otherness. To realize right down at the very heart of things that other people are not merely an extension of myself, or the same as me, is truly surprising every time. Even a little unsettling.
 
 Tonight we spent some time at a church home group hearing bits of friends’ stories, important moments in their faith journeys. This sort of thing bewilders me with the glory of otherness. The people whom I joke with and talk to and feel I know, are so completely _not mine_.
 

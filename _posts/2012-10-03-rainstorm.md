@@ -1,4 +1,10 @@
-We walked under a sputtering sort of drizzly sprinkle, the kind that makes the earth around our feet smell all brown and good, and dampens our cheeks while it cools our hearts. Strolling through light rain feels like pressing a big, satisfying reset button. 
+---
+title: Rainstorm
+date: 2012-10-03 17:07:00
+category: blog
+tag: vintage
+---
+        We walked under a sputtering sort of drizzly sprinkle, the kind that makes the earth around our feet smell all brown and good, and dampens our cheeks while it cools our hearts. Strolling through light rain feels like pressing a big, satisfying reset button. 
 
 It was only Nick, Polly, myself, and the dog. And we walked to get the zoomies out. Everybody’s zoomies. Except mine. I didn’t have any, not that close to bedtime.
 

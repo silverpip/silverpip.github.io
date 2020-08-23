@@ -1,4 +1,10 @@
- Right in the middle of Good Friday mass, Nick needed a new diaper… of course. I discreetly left the solemnly bare sanctuary (as discreetly as anyone can wrestling a wriggly red-faced screeching ball of charm smelling like poo) and headed for the basement, to find spread before me a sea of brown packing boxes bursting with color. 
+---
+title: Sacristy Magic
+date: 2011-04-23 17:43:20
+category: blog
+tag: vintage
+---
+         Right in the middle of Good Friday mass, Nick needed a new diaper… of course. I discreetly left the solemnly bare sanctuary (as discreetly as anyone can wrestling a wriggly red-faced screeching ball of charm smelling like poo) and headed for the basement, to find spread before me a sea of brown packing boxes bursting with color. 
 
  I was in the magic of the sacristy, where lovely, holy things wait upon their time, as we wait upon the opening of the tomb tomorrow. In those boxes, row upon row of queenly lilies and peppy hyacinths. And perfect, singing hydrangeas. It is the image which happily haunts me through this Holy Saturday: waves of boxed flowers all keeping vigil for Easter. 
 

@@ -1,4 +1,10 @@
-(My pregnant brain thought I posted this a month ago, and then my postpartum brain found I hadn’t. But I like it, so I am posting it now, enjoying the novelty of time travel.)
+---
+title: Silent Night
+date: 2013-01-02 15:00:00
+category: blog
+tag: vintage
+---
+        (My pregnant brain thought I posted this a month ago, and then my postpartum brain found I hadn’t. But I like it, so I am posting it now, enjoying the novelty of time travel.)
 
 I am never such an insomniac as when I am nine months pregnant. Normally, my problems are quite the opposite. I sleep too deeply, for too long, and the bad effects of a nap upon me are the stuff of legend.
 

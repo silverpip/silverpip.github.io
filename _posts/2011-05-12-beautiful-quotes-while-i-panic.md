@@ -1,4 +1,10 @@
-_All shall be well, and all shall be well, and all manner of thing shall be well. – Dame Julian of Norwich_
+---
+title: Beautiful Quotes While I Panic
+date: 2011-05-12 21:28:00
+category: blog
+tag: vintage
+---
+        _All shall be well, and all shall be well, and all manner of thing shall be well. – Dame Julian of Norwich_
 
 My house is a hurricane of dishes and misplaced clutter and mysterious crud crawling from corners. My children are absolutely undirected, there is a huge shed project starting in the backyard, and nothing but frozen beef and wilted asparagus to eat. Nap schedules are in disarray so babies are crying. Polly has spilled ice-water all over the couch (and ourselves) so we are crying.
 

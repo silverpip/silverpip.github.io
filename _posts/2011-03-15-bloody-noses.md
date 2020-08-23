@@ -1,4 +1,10 @@
-I recently had my shortcomings as a compassionate nurse pointed out to me. But it seems my children have stepped up to fill in the gap.
+---
+title: Bloody Noses
+date: 2011-03-15 21:23:00
+category: blog
+tag: vintage
+---
+        I recently had my shortcomings as a compassionate nurse pointed out to me. But it seems my children have stepped up to fill in the gap.
 
 William’s nose recently collided with Thomas’ head, and of course bled copiously. A few minutes later he was propped up on the couch, surrounded by cushy pillows and bloodied tissues. Thomas and Polly brought him comfort after comfort. When I came to check on him, he gazed at me with starry eyes, and told me in a voice which implied that dreams really do come true: “When you have a bloody nose everyone is so NICE. It’s like they throw you a tissue party!”
 

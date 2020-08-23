@@ -1,4 +1,10 @@
-A favorite park, empty of everyone else in the wintery sunshine, my children’s shouts rising sweet and clear above the sound of a rushing creek nearby, swollen with melted snow and sparking bright.
+---
+title: Good Times: snapshots of a lovely evening
+date: 2011-03-26 00:14:00
+category: blog
+tag: vintage
+---
+        A favorite park, empty of everyone else in the wintery sunshine, my children’s shouts rising sweet and clear above the sound of a rushing creek nearby, swollen with melted snow and sparking bright.
 
 The fervor in Thomas’ face as he searches out a certain longed-for book about volcanoes in the library display case.
 

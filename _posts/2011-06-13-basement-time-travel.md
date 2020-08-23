@@ -1,4 +1,10 @@
-I’ve been sifting through boxes all afternoon, uncovering honeymoon photos and newborn hospital bracelets between appliance manuals and old grocery lists. All the sepia toned sweetness obscuring my clarity right now has me feeling quite sentimental. We summoned children down to the basement periodically, calling out “Do you remember… Look at when your… can you believe how chubby…?"
+---
+title: Basement Time Travel
+date: 2011-06-13 20:17:00
+category: blog
+tag: vintage
+---
+        I’ve been sifting through boxes all afternoon, uncovering honeymoon photos and newborn hospital bracelets between appliance manuals and old grocery lists. All the sepia toned sweetness obscuring my clarity right now has me feeling quite sentimental. We summoned children down to the basement periodically, calling out “Do you remember… Look at when your… can you believe how chubby…?"
 
 All those early years, first few babies, and youthful faces stare back at me from photographs as from a different life. The distance seems farther, and much mistier than I remember in my own head. Why should a mere photo create such a feeling of discontinuity?
 

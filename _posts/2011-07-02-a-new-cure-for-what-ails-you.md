@@ -1,4 +1,10 @@
- The restorative effects of a popsicle are miraculous. 
+---
+title: A New Cure For What Ails You
+date: 2011-07-02 22:18:13
+category: blog
+tag: vintage
+---
+         The restorative effects of a popsicle are miraculous. 
 
  Two children sobbed in my arms after bumping heads, another twisted his ankle on the trampoline, and yet one more was involved in a mysterious slip-n-slide accident. I heard the early stages of a fight brewing somewhere behind me. The evening was turning into a circus of tradgedy. 
 

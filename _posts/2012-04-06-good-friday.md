@@ -1,4 +1,10 @@
-Leave me here with my Lord. Leave me with my grief.
+---
+title: Good Friday
+date: 2012-04-06 22:22:00
+category: blog
+tag: vintage
+---
+        Leave me here with my Lord. Leave me with my grief.
 
 Take your kind, awkward Sunday words someplace else this Friday.
 

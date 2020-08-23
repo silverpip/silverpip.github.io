@@ -1,4 +1,10 @@
-My four big boys and I sprawled over the table, hands full of scissors   
+---
+title: Gluey Scissors
+date: 2011-03-31 15:00:00
+category: blog
+tag: vintage
+---
+        My four big boys and I sprawled over the table, hands full of scissors   
 and Scotch tape and sticky gluestick bits, happily surrounded by   
 little bits of colored paper and arcane instructions, piecing together   
 a model Viking village. 

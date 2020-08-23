@@ -1,4 +1,10 @@
- I know this is weird and all, but what really brought me joy and life today was… going to confession. 
+---
+title: Confessional
+date: 2011-04-15 21:48:01
+category: blog
+tag: vintage
+---
+         I know this is weird and all, but what really brought me joy and life today was… going to confession. 
 
  When Steven and I first were talking about becoming Catholic, I would lay out some objections, and he would say, “ …but you could go to confession…” like it was some sort of funny ecclessial carrot. Which, actually, it was. 
 

@@ -1,4 +1,10 @@
- Peter sauntered into the kitchen today wearing a green satin cape, plush raccoon mask, and handcuffs. 
+---
+title: I couldn’t make this stuff up.
+date: 2011-05-28 10:25:40
+category: blog
+tag: vintage
+---
+         Peter sauntered into the kitchen today wearing a green satin cape, plush raccoon mask, and handcuffs. 
 
  “What are you _doing_?” I puzzled. 
 

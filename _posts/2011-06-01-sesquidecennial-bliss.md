@@ -1,4 +1,10 @@
- It is our fifteenth wedding anniversary today. Looking back over the years: yes, there have been a few memorable moments when we have each been sadder and wiser people on account of the other; but taken all together, what’s not to love? 
+---
+title: Sesquidecennial Bliss
+date: 2011-06-01 22:30:39
+category: blog
+tag: vintage
+---
+         It is our fifteenth wedding anniversary today. Looking back over the years: yes, there have been a few memorable moments when we have each been sadder and wiser people on account of the other; but taken all together, what’s not to love? 
 
  Steven tells me I have a selective memory, and blesses it. I believe he underestimates himself and does not realize how his gentleness and honesty smooths the way. 
 

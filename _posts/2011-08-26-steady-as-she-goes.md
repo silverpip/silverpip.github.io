@@ -1,4 +1,10 @@
- Thus ends our first week back in the homeschooling saddle. And I am happy to report there was a lot less chafing than predicted. 
+---
+title: Steady As She Goes
+date: 2011-08-26 21:42:58
+category: blog
+tag: vintage
+---
+         Thus ends our first week back in the homeschooling saddle. And I am happy to report there was a lot less chafing than predicted. 
 
  My goal this year is _sustainability_: remember less is more, add things gradually, and of course… don’t panic. 
 

@@ -1,4 +1,10 @@
-<figure class="tmblr-full" data-orig-height="334" data-orig-src="https://64.media.tumblr.com/fd282955f4bdc956d7159e6b8972a9b8/tumblr_inline_n5mqv2NMGy1qgdtwd.jpg" data-orig-width="500"><img alt="image" data-orig-height="334" data-orig-src="https://64.media.tumblr.com/fd282955f4bdc956d7159e6b8972a9b8/tumblr_inline_n5mqv2NMGy1qgdtwd.jpg" data-orig-width="500" height="334" src="https://64.media.tumblr.com/d8ed30257caf8abb5b75c49f056f2063/tumblr_inline_pk1dmmmk001qgdtwd_500.jpg" width="500"/></figure>
+---
+title: Parthenon, etc.
+date: 2014-05-15 15:17:42
+category: blog
+tag: vintage
+---
+        <figure class="tmblr-full" data-orig-height="334" data-orig-src="https://64.media.tumblr.com/fd282955f4bdc956d7159e6b8972a9b8/tumblr_inline_n5mqv2NMGy1qgdtwd.jpg" data-orig-width="500"><img alt="image" data-orig-height="334" data-orig-src="https://64.media.tumblr.com/fd282955f4bdc956d7159e6b8972a9b8/tumblr_inline_n5mqv2NMGy1qgdtwd.jpg" data-orig-width="500" height="334" src="https://64.media.tumblr.com/d8ed30257caf8abb5b75c49f056f2063/tumblr_inline_pk1dmmmk001qgdtwd_500.jpg" width="500"/></figure>
 
   
   

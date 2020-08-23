@@ -1,4 +1,10 @@
- I had to drive a car again today. –_sighs and tears–_ 
+---
+title: Well, Actually…
+date: 2011-07-13 22:36:31
+category: blog
+tag: vintage
+---
+         I had to drive a car again today. –_sighs and tears–_ 
 
  Rush hour, construction, broken air conditioner, everyone hungry, screaming baby: the usual. The _unusual_ thing was that I remained calm. In fact, it may have been my one calm moment all day. 
 

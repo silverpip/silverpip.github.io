@@ -1,4 +1,10 @@
-My parents live atop a hill so steep that the road to it should qualify as a black diamond ski-slope. My heart beats wildly and my knees shake whenever I pull into their garage, and I sit for a long moment in the driver’s seat, keys dangling from a silent ignition, thankful that I and my passengers are still in one piece.
+---
+title: Wagon Rides
+date: 2012-03-20 21:31:00
+category: blog
+tag: vintage
+---
+        My parents live atop a hill so steep that the road to it should qualify as a black diamond ski-slope. My heart beats wildly and my knees shake whenever I pull into their garage, and I sit for a long moment in the driver’s seat, keys dangling from a silent ignition, thankful that I and my passengers are still in one piece.
 
 Yesterday Thomas and William were helping to haul fallen logs from the backyard. It was manly work, with plenty of grunting and deep-voiced camaraderie and rides to and fro in the all-terrain garden wagon until the moment these two mighty woodsmen of eight and six swaggered into the kitchen and announced that the last pile of logs couldn’t be moved because there were too many slugs. Their gray-haired granny had to sort that one, and what with one thing and another, the wagon was left out.
 

@@ -1,4 +1,10 @@
-Polly needed to use the bathroom while we were out and about.  
+---
+title: Reader’s Digest Moments
+date: 2012-10-24 15:00:00
+category: blog
+tag: vintage
+---
+        Polly needed to use the bathroom while we were out and about.  
  “Why can’t we go there?”  
  “We can try, but it’s just a convenience store.”  
  Thomas piped in. “I think bathrooms are _awfully_ convenient!”

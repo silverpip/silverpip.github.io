@@ -1,4 +1,10 @@
-I found pages and chunks of pages from_The Seven Silly Eaters_all over the house, from the bit where Mrs. Peters is peeling apples on the porch (wedged between my couch cushions) to the part where she has a meltdown all over her crazy kitchen (stuffed into my under-oven drawer.) Our well worn copy is beyond book tape. It has been beloved by enough children for enough years that we can retire it with honor in our backyard fire pit (this is what we do with sentimental objects loved into rags: it somehow satisfies the soul to burn up ceremoniously what would be horrifying to merely throw away.)
+---
+title: Read into Rags
+date: 2011-04-08 21:47:00
+category: blog
+tag: vintage
+---
+        I found pages and chunks of pages from_The Seven Silly Eaters_all over the house, from the bit where Mrs. Peters is peeling apples on the porch (wedged between my couch cushions) to the part where she has a meltdown all over her crazy kitchen (stuffed into my under-oven drawer.) Our well worn copy is beyond book tape. It has been beloved by enough children for enough years that we can retire it with honor in our backyard fire pit (this is what we do with sentimental objects loved into rags: it somehow satisfies the soul to burn up ceremoniously what would be horrifying to merely throw away.)
 
 This story and its wryly sweet illustrations have humored me through so many weary days and crotchety moments as I’ve read it again and again, until my children can say the rhymes if I pause to let them. And it still makes me chuckle every time.
 

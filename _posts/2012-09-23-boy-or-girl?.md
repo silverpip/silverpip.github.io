@@ -1,4 +1,10 @@
-Well, umm, yes. I did sort of fail on my promise to write about the sonogram. I say sort of because I actually did write, but then forgot to post it. Because right now I am Ellie Space Ditz. And I do not actually feel bad because I do not think anyone out there is so wrapped up in my life as to be chewing their nails over my sonogram. But I did promise, if only to myself, and it is a very silly sort of fail. Though not as silly as some I’ve known lately…
+---
+title: Boy or Girl?
+date: 2012-09-23 21:18:51
+category: blog
+tag: vintage
+---
+        Well, umm, yes. I did sort of fail on my promise to write about the sonogram. I say sort of because I actually did write, but then forgot to post it. Because right now I am Ellie Space Ditz. And I do not actually feel bad because I do not think anyone out there is so wrapped up in my life as to be chewing their nails over my sonogram. But I did promise, if only to myself, and it is a very silly sort of fail. Though not as silly as some I’ve known lately…
 
 So here is my post, rather late, but refrigerator fresh:
 

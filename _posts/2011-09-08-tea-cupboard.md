@@ -1,4 +1,10 @@
-My tea cupboard is miraculous. It looks like anyone else’s tea cupboard, just a regular kitchen shelf full of anything I might need to make a quick pot. It’s so unassuming, in fact, I never realized until today how much I love it.
+---
+title: Tea Cupboard
+date: 2011-09-08 22:58:00
+category: blog
+tag: vintage
+---
+        My tea cupboard is miraculous. It looks like anyone else’s tea cupboard, just a regular kitchen shelf full of anything I might need to make a quick pot. It’s so unassuming, in fact, I never realized until today how much I love it.
 
 Everything else about my physical space must be organized, reordered, maintained. A floor is vacuumed only to be strewn afresh. A bookshelf is thinned only to be jammed again. These tasks belong rightly to balance and harmony.
 

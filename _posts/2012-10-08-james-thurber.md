@@ -1,4 +1,10 @@
-Somewhere I picked up the notion that James Thurber was one of those gloomy highbrow modern authors who are at their most artistic when spreading misery and despair. I don’t spend time on writers I assume this of, and have reached the age at which I don’t even care who knows it. I am perfectly content to be considered lowbrow, basking joyfully in weavers of hope and courage and droll wit, though I retain an unfortunately discordant penchant for black turtlenecks. They are so slimming.
+---
+title: James Thurber
+date: 2012-10-08 16:00:00
+category: blog
+tag: vintage
+---
+        Somewhere I picked up the notion that James Thurber was one of those gloomy highbrow modern authors who are at their most artistic when spreading misery and despair. I don’t spend time on writers I assume this of, and have reached the age at which I don’t even care who knows it. I am perfectly content to be considered lowbrow, basking joyfully in weavers of hope and courage and droll wit, though I retain an unfortunately discordant penchant for black turtlenecks. They are so slimming.
 
 But I turn out to be wrong: about Thurber, anyway. Not about the turtlenecks. His name must have been lumped in with some of those others during a half overheard conversation or booklist in my childhood. Because so far in my short time with him, he’s funny. And sane. And especially his autobiographical shorts are delightful.
 

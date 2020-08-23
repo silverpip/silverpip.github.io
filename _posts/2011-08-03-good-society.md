@@ -1,4 +1,10 @@
- Good Society jeans. Organically grown and fair trade manufactured in India. 
+---
+title: Good Society
+date: 2011-08-03 22:44:38
+category: blog
+tag: vintage
+---
+         Good Society jeans. Organically grown and fair trade manufactured in India. 
 
  AND 25% of their profits go to SA Foundation, which helps women who have been forced into the sex trafficking industry. 
 

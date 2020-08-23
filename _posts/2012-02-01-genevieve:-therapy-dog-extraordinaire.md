@@ -1,4 +1,10 @@
-Ours is the weeniest dog in creation. Her name is Genevieve, and we call her our sheep in wolf’s clothing. She tenderly loves quixotic and unpredictable humans, patiently enduring even Nick sticking fingers up her nose and choke-holding her neck in the exuberance of true love. But she cannot abide looming objects.
+---
+title: Genevieve: Therapy Dog Extraordinaire
+date: 2012-02-01 22:19:00
+category: blog
+tag: vintage
+---
+        Ours is the weeniest dog in creation. Her name is Genevieve, and we call her our sheep in wolf’s clothing. She tenderly loves quixotic and unpredictable humans, patiently enduring even Nick sticking fingers up her nose and choke-holding her neck in the exuberance of true love. But she cannot abide looming objects.
 
 This is difficult. She couldn’t share the living room with a Christmas tree. She was suspicious of her food rack for weeks. And she has made some sort of religious vow never to walk by the picnic shelter at our park. That last one is a problem because we really _must_ walk by it to get to our park at all. More than once I’ve found myself trudging past with a great, sad-eyed, muddy Golden Retriever in my arms and six children dancing along behind. Such a spectacle.
 

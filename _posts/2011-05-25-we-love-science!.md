@@ -1,4 +1,10 @@
- “Science Day” at our local waterpark means super cheap admission for large homeschool families and their very helpful grandparents (and lots of mentos n'coke). Yaaaay! 
+---
+title: We Love Science!
+date: 2011-05-25 22:52:30
+category: blog
+tag: vintage
+---
+         “Science Day” at our local waterpark means super cheap admission for large homeschool families and their very helpful grandparents (and lots of mentos n'coke). Yaaaay! 
 
  Jack and Peter raised their hands tremulously as the swinging pirate ship tipped them vertically, and looked as though they were going to be sick. Later they took great delight in my screams of terror while we plummeted into a giant funnel. 
 

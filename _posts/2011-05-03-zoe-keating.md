@@ -1,4 +1,10 @@
-I love this woman’s music. It sounds like the voice of a soul. The cello is my favorite, anyway, but I have never heard it like this. It makes me want to turn the lights off and just listen and listen and listen. It really cannot be played as background music at all; it is right up front and center. Sometimes we just listen to her album on a loop in the middle of the night while trying to woo Baby Nick back to sleep. Electronic baroque!? I wonder what Bach would think…
+---
+title: Zoe Keating
+date: 2011-05-03 21:41:36
+category: blog
+tag: vintage
+---
+        I love this woman’s music. It sounds like the voice of a soul. The cello is my favorite, anyway, but I have never heard it like this. It makes me want to turn the lights off and just listen and listen and listen. It really cannot be played as background music at all; it is right up front and center. Sometimes we just listen to her album on a loop in the middle of the night while trying to woo Baby Nick back to sleep. Electronic baroque!? I wonder what Bach would think…
 
 
 

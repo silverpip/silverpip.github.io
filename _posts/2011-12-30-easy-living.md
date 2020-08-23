@@ -1,4 +1,10 @@
-With Steven out of town, I thought we’d take things easy around here. No wake-up times, no math, and everyone could take as long as they wanted in the shower.
+---
+title: Easy Living
+date: 2011-12-30 05:21:00
+category: blog
+tag: vintage
+---
+        With Steven out of town, I thought we’d take things easy around here. No wake-up times, no math, and everyone could take as long as they wanted in the shower.
 
 Returning from a quick bagel run this morning (groceries not being “easy”) I found a soaked teen and pre-teen desperately plying vise grips on an ice-cold shower.
 

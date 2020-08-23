@@ -1,4 +1,10 @@
-__This is so great! _Ya’ll have talent!_ Let’s keeping going– I want to know what happens next…__
+---
+title: Campfire Games Sunday
+date: 2011-03-20 21:07:00
+category: blog
+tag: vintage
+---
+        __This is so great! _Ya’ll have talent!_ Let’s keeping going– I want to know what happens next…__
 
 It was a dark and stormy night…
 

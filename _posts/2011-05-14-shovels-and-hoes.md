@@ -1,4 +1,10 @@
-A backyard shed assembled, small retaining wall dug out and rebuilt, stepping stones placed, firewood stacked, and all eight of us (ten if you count the grandparents) merrily marinated in glorious mud! Forgive me if I lean just a moment longer on my hoe.
+---
+title: Shovels and Hoes
+date: 2011-05-14 21:53:00
+category: blog
+tag: vintage
+---
+        A backyard shed assembled, small retaining wall dug out and rebuilt, stepping stones placed, firewood stacked, and all eight of us (ten if you count the grandparents) merrily marinated in glorious mud! Forgive me if I lean just a moment longer on my hoe.
 
 Of course, Kipling has something perfectly lyrical (and fortunately not wicked or imperialistic) to say on topic. It went looping through my mind all afternoon:
 

@@ -1,4 +1,10 @@
-The fun Polly and I have bringing her for a haircut surprises me every time. It’s just an errand, right? One more thing to check off our list. But it’s not. It somehow manages to become an oasis of femininity in both our boy-filled lives. And I guess the pleasure surprises me because I don’t mind the boy-ness of our family one bit. Quite the reverse. A good tumbling rush suits me just fine.
+---
+title: A Daughter
+date: 2012-01-05 09:25:00
+category: blog
+tag: vintage
+---
+        The fun Polly and I have bringing her for a haircut surprises me every time. It’s just an errand, right? One more thing to check off our list. But it’s not. It somehow manages to become an oasis of femininity in both our boy-filled lives. And I guess the pleasure surprises me because I don’t mind the boy-ness of our family one bit. Quite the reverse. A good tumbling rush suits me just fine.
 
 But when we walk through those salon doors we are mysteriously confirmed as mother and daughter in a world of our own.
 

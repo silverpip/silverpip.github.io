@@ -1,4 +1,10 @@
-Cold night air on our drowsy faces and carols in the car all the way to midnight mass started everything off just right. And it only got better: quietly, gladly celebrating our Lord’s birth together with twinkly-winkly lights and sung liturgy.
+---
+title: The Christ Mass
+date: 2011-12-25 22:30:00
+category: blog
+tag: vintage
+---
+        Cold night air on our drowsy faces and carols in the car all the way to midnight mass started everything off just right. And it only got better: quietly, gladly celebrating our Lord’s birth together with twinkly-winkly lights and sung liturgy.
 
 Christmas morning was just what Christmas morning ought to be. Short on sleep and long on joy; distilled family. And then naps. Beautiful naps on the couch, restful even with the intermittent poking of a two-year-old.
 

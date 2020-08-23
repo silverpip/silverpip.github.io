@@ -1,4 +1,10 @@
-It turns out that the ban on home fireworks in Pennsylvania was lifted last year. Who knew?
+---
+title: Extravagance
+date: 2011-07-03 23:34:00
+category: blog
+tag: vintage
+---
+        It turns out that the ban on home fireworks in Pennsylvania was lifted last year. Who knew?
 
 All I can say is… WOW!
 

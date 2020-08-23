@@ -1,4 +1,10 @@
-A tiny woman lives around my alley corner, in a trim red house with yellow windows. She and her man, gray, stooped with age, walk very slowly.
+---
+title: Aging Gracefully
+date: 2013-09-08 15:30:23
+category: blog
+tag: vintage
+---
+        A tiny woman lives around my alley corner, in a trim red house with yellow windows. She and her man, gray, stooped with age, walk very slowly.
 
 But her flowers bloom all summer and fall, and her vegetables climb neatly in pretty rows. Her laundry dries white on a clothesline over the sweet green grass, and a big classic canoe lives atop their truck because they take it out so often.
 

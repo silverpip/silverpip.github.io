@@ -1,4 +1,10 @@
-Nearly fifteen years ago, I was so moved by the sight of clustering   
+---
+title: Fish Trees
+date: 2011-04-11 21:38:57
+category: blog
+tag: vintage
+---
+        Nearly fifteen years ago, I was so moved by the sight of clustering   
 white blossoms overhanging a nearby path, that I gathered armfuls of   
 the branches, and filled our hilarious newlywed trailer-home with   
 them. Sure, they smelled a little funny, but I was so eager for their   

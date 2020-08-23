@@ -1,4 +1,10 @@
-Bags of glorious hand-me-downs arrived tonight, and made for an enchanted evening. A new dollhouse and some remarkable squeaky shoes (?!) kept everyone happy until bedtime, which was great, since I previously hadn’t a clue what to do with us all.
+---
+title: Hand-Me-Downs
+date: 2011-09-17 21:17:00
+category: blog
+tag: vintage
+---
+        Bags of glorious hand-me-downs arrived tonight, and made for an enchanted evening. A new dollhouse and some remarkable squeaky shoes (?!) kept everyone happy until bedtime, which was great, since I previously hadn’t a clue what to do with us all.
 
 A little novelty goes a long way around here.
 

@@ -1,4 +1,10 @@
-Old commencement speeches aren’t usually what I go hunting for, but I heard David Foster Wallace’s (whose writing I had never read) quoted partially this morning and was far enough intrigued to read the rest myself.
+---
+title: Commencement
+date: 2011-08-07 15:00:00
+category: blog
+tag: vintage
+---
+        Old commencement speeches aren’t usually what I go hunting for, but I heard David Foster Wallace’s (whose writing I had never read) quoted partially this morning and was far enough intrigued to read the rest myself.
 
 This address has certainly challenged, and I think possibly eclipsed some of my previously unformed ideas about the ends of education. It is a good read, and an important one. Leaving certain depths of reality unplumbed, it still manages to turn my thinking on its head, and that is so rare a gift.
 

@@ -1,4 +1,10 @@
-_Lachrimae Amantis (Tears of Love), by Geoffrey Hill_
+---
+title: Good Friday
+date: 2011-04-22 21:31:00
+category: blog
+tag: vintage
+---
+        _Lachrimae Amantis (Tears of Love), by Geoffrey Hill_
 
 _What is there in my heart that you should sue _  
 _so fiercely for its love? What kind of care _  

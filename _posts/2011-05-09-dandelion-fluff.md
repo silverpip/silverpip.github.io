@@ -1,4 +1,10 @@
- During a rather scattered Mother’s Day walk, the children made wishes and blew dandelion seeds to the four winds (as well as slogging through some unexpected bogs.) Suddenly Thomas bolted straight into the field, puff-balls pouring from his heels. 
+---
+title: Dandelion Fluff
+date: 2011-05-09 20:35:11
+category: blog
+tag: vintage
+---
+         During a rather scattered Mother’s Day walk, the children made wishes and blew dandelion seeds to the four winds (as well as slogging through some unexpected bogs.) Suddenly Thomas bolted straight into the field, puff-balls pouring from his heels. 
 
  “Where are you going!? Come back!” 
 

@@ -1,4 +1,10 @@
-_The driver bowed and took my things._
+---
+title: Life Well-Journeyed
+date: 2011-04-30 15:00:00
+category: blog
+tag: vintage
+---
+        _The driver bowed and took my things._
 
 _He wore a mackintosh and wings._
 

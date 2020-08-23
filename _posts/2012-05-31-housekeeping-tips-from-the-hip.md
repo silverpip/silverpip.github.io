@@ -1,4 +1,10 @@
-Pippy Longstocking is my mentor. It is wonderful to do things the wrong way. I like knowing all about the right way, and then wandering off under some wayward muse. Take floor-washing: Yes, I know that getting down on my hands and knees is the _right_ way to wash my kitchen floor, and I do it when desperate times call, but after years of experimentation I have finally found that special, _wrong_ way that makes the stars dance.
+---
+title: Housekeeping Tips From the Hip
+date: 2012-05-31 21:55:00
+category: blog
+tag: vintage
+---
+        Pippy Longstocking is my mentor. It is wonderful to do things the wrong way. I like knowing all about the right way, and then wandering off under some wayward muse. Take floor-washing: Yes, I know that getting down on my hands and knees is the _right_ way to wash my kitchen floor, and I do it when desperate times call, but after years of experimentation I have finally found that special, _wrong_ way that makes the stars dance.
 
 Simply squeeze a soaked dishcloth out over my floor several times until all areas are well dripped. Stand on an old bath towel and drag my feet around and into the corners. Throw my various cloths into the laundry, and voila! Simultaneously clean and dry! Other people must wash floors this way, surely. I cannot possibly be the only one to have reached enlightenment.
 

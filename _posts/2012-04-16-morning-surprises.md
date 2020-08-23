@@ -1,4 +1,10 @@
-Peter wrote in his journal tonight:
+---
+title: Morning Surprises
+date: 2012-04-16 21:00:00
+category: blog
+tag: vintage
+---
+        Peter wrote in his journal tonight:
 
  _Morning Surprises_
 

@@ -1,4 +1,10 @@
-This morning I began the drive to preschool fuddleheaded and silent,   
+---
+title: Singin’ In the Rain
+date: 2011-03-30 23:02:30
+category: blog
+tag: vintage
+---
+        This morning I began the drive to preschool fuddleheaded and silent,   
 doing my job. Polly chatted blithely on, and an awareness dawned upon   
 me that I was not giving this moment my personal best. But that best   
 was definitely not up to the level of cheerful chatting. So I started   

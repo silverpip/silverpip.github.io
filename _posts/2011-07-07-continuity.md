@@ -1,4 +1,10 @@
- I have a friend, steady as a rock, whom I have treasured since middle school. Once in a while, we’re even on the same continent. 
+---
+title: Continuity
+date: 2011-07-07 21:34:38
+category: blog
+tag: vintage
+---
+         I have a friend, steady as a rock, whom I have treasured since middle school. Once in a while, we’re even on the same continent. 
 
  And I tell you what, this life stage of mothering is the toughest yet as far as friendship goes. By the time all our stars align (not to mention our children’s), I’m so sleepy I can hardly put two sentences together, much less an interesting conversation with another mind. 
 

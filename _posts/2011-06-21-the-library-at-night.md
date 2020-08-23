@@ -1,4 +1,10 @@
- I took four of the children to have a beautiful quiet evening at the library while the other two were busy with guitar lessons. But I think I have decided to leave library visits to the bright-eyed mornings from now on. 
+---
+title: The Library at Night
+date: 2011-06-21 00:47:28
+category: blog
+tag: vintage
+---
+         I took four of the children to have a beautiful quiet evening at the library while the other two were busy with guitar lessons. But I think I have decided to leave library visits to the bright-eyed mornings from now on. 
 
  First of all, we had to change the clothes they’d been revelling outdoors in all day, and comb down Polly’s ruffled locks, as the library is in really quite a snooty part of town and the other patrons are rawther put-together dahling. 
 

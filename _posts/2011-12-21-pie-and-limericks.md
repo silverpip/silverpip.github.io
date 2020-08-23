@@ -1,4 +1,10 @@
-<div>Our kitchen has been covered by pies in various stages of development for a couple days now, and Nick is very interested. This morning I heard him galloping into the living room singing, (to the tune of “Oh, Christmas Tree”) “Oh, Cwithmuth Pie! Oh, Cwithmuth Pie!” over and over again.</div>
+---
+title: Pie and Limericks
+date: 2011-12-21 21:49:00
+category: blog
+tag: vintage
+---
+        <div>Our kitchen has been covered by pies in various stages of development for a couple days now, and Nick is very interested. This morning I heard him galloping into the living room singing, (to the tune of “Oh, Christmas Tree”) “Oh, Cwithmuth Pie! Oh, Cwithmuth Pie!” over and over again.</div>
 
 <div>In related seasonal news, Jack read me this gem today:</div>
 

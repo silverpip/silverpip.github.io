@@ -1,4 +1,10 @@
-With each new toddler comes fresh perspective on Helen Oxenbury’s wonderful “Bear Hunt”. I love it. Love all the wandering together. Love the look on the father’s face as his baby explores mud with her toes. Love the oldest sister’s tenderness in gathering small sibling’s shoes. Love the impulsiveness which remembered neither mittens nor sandwiches. Love the exploring, and the freedom, and the shock of success at the very end.
+---
+title: We’re Going On A Bear Hunt
+date: 2011-12-19 21:22:00
+category: blog
+tag: vintage
+---
+        With each new toddler comes fresh perspective on Helen Oxenbury’s wonderful “Bear Hunt”. I love it. Love all the wandering together. Love the look on the father’s face as his baby explores mud with her toes. Love the oldest sister’s tenderness in gathering small sibling’s shoes. Love the impulsiveness which remembered neither mittens nor sandwiches. Love the exploring, and the freedom, and the shock of success at the very end.
 
 But over the years, in all the many moods I’ve chanted it, two questions loom: Why did they go, and why did they keep going? (Without so much as a coat between them!)
 

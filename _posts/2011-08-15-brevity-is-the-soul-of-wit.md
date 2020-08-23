@@ -1,4 +1,10 @@
-I accidentally stumbled across a first-rate, blog-based, post-apocalyptic novel. It’s great, but Oh. So. Long. I guess this is what happens when a brilliant writer gets to publish themselves. No one to say, look, this is terrific, really, but pick up the pace!
+---
+title: Brevity is the Soul of Wit
+date: 2011-08-15 22:45:00
+category: blog
+tag: vintage
+---
+        I accidentally stumbled across a first-rate, blog-based, post-apocalyptic novel. It’s great, but Oh. So. Long. I guess this is what happens when a brilliant writer gets to publish themselves. No one to say, look, this is terrific, really, but pick up the pace!
 
 This must be to survival fiction what I’ve always imagined Jordon’s Wheel of Time series to be to the fantasy genre, which is why I’ve never picked it up.
 
