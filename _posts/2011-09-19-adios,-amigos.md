@@ -1,0 +1,1 @@
+Silverpip is on hiatus for the present. I can’t write until I get myself sorted, and I can’t get myself sorted until, well, I don’t know…. so I’ll see you then, duckies. And good luck.
