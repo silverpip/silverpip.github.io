@@ -27,7 +27,7 @@ search: true
 # Build settings
 markdown: kramdown
 # remote_theme: "mmistakes/minimal-mistakes@4.20.1"
-theme: minima
+theme: jekyll-theme-cayman
 
 # Outputting
 permalink: /:categories/:title/
@@ -115,5 +115,3 @@ category_archive:
 tag_archive:
   type: liquid
   path: /tags/
-
-theme: jekyll-theme-cayman
